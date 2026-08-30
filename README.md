@@ -11,7 +11,7 @@
 
 ### 〔 SOFTWARE // DATA // SYSTEMS 〕
 
-`FORGE`　`ASCEND`　`CONQUER`
+`FORGE`　`ASCEND`　`ADAPT`
 
 ---
 
